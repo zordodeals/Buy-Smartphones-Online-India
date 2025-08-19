@@ -1,1 +1,1 @@
-# Buy-Smartphones-Online-India
+Zordo Deals is India’s leading online platform for comparing prices, finding top deals, and discovering the latest coupons on smartphones, electronics, fashion, and more. Trusted by millions, Zordo helps you shop smart and save big—every time.
